@@ -1,8 +1,8 @@
 # weekend
 
 # Friday
-Sleeping, internship meeting, practice :) 
+
 
 # Saturday 
-
+Going to the football Game
 # Sunday 
